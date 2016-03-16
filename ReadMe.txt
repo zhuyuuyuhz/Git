@@ -9,3 +9,7 @@ Good luck to he.
 He love his family.
 
 His family also love he.
+
+He study hard.
+
+He like Anhui.
